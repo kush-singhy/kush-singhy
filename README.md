@@ -1,4 +1,4 @@
-kushsinghy.com
+https://kushsinghy.com
 
 ✌️ Hi, I’m Kush, a Software Developer based in Sydney. 
 
