@@ -1,5 +1,5 @@
-Hi, I’m Kush, a Software Developer based in Sydney. After deciding a career as an Actuary wasn't for me, I went into the technology space focusing on creating exciting customer experiences. 
+✌️ Hi, I’m Kush, a Software Developer based in Sydney. 
 
-I'm obsessed with truly understanding stakeholder needs, focusing on what's important, and ensuring my work is presented in a creative, professional manner (refer to The Apple Marketing Philosophy).
+After deciding a career as an Actuary wasn't for me, I went into the technology space focusing on creating exciting customer experiences. 
 
-I also read books, write regularly on my Substack, lift weights, and run long distances. 
+Outside of work I like to make cool apps, run long distances and read good books.
